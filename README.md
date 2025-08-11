@@ -13,3 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: You don´t need.
 - 😄 Pronouns: Nigga, bro.
 - ⚡ Fun fact: I don´t have
+- My name is: 🖒 ♋︎ ■ ♓︎ ♏︎ ●
