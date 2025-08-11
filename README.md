@@ -7,9 +7,9 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on: Iḿ not working, i not engouth 18 years.
 - 🌱 I’m currently learning: Much anythings.
-- 👯 I’m looking to collaborate on: Works.
-- 🤔 I’m looking for help with:
-- 💬 Ask me about:
-- 📫 How to reach me:
-- 😄 Pronouns:
-- ⚡ Fun fact:
+- 👯 I’m looking to collaborate on: Works of school
+- 🤔 I’m looking for help with: Biology
+- 💬 Ask me about: Fun facts about biology.
+- 📫 How to reach me: You don´t need.
+- 😄 Pronouns: Nigga, bro.
+- ⚡ Fun fact: I don´t have
